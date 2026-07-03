@@ -1,4 +1,4 @@
-#  
+#  no-ban Scripts for anime card clash offers the most advanced anime card clash Script, with fly and silent aim. Perfect for dominating any match.
 
 
 
